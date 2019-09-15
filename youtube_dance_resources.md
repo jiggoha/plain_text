@@ -1,0 +1,35 @@
+# Youtube Dance Resources
+
+## Hip Hop
+[Reject Step](https://www.youtube.com/watch?v=fMEBZ59AQLk)
+
+## House 
+[Pivot Step Progression](https://www.youtube.com/watch?v=AdELXIatPDA)
+* Teacher: Jardy Santiago
+* 9:25 for variation 3 that’s the hardest
+* 0:00 music 0.75x speed
+
+[Loose Legs to Crossroads](https://www.youtube.com/watch?v=qhjIoA0kq4g)
+* Teacher: Jardy Santiago
+
+## Popping
+[Boogaloo Walkout](https://www.youtube.com/watch?v=_oiBafzsEFk)
+* Teacher: Nelson
+* 0:37 for 4 step
+* 1:16 for 8 step
+
+[Steezy Boogaloo](https://www.youtube.com/watch?v=9Zd1LnclWug)
+* Teacher: Kid Boogie
+* 0:17 for music
+
+## Locking
+[Scoobot](https://www.youtube.com/watch?v=2_qDDJC6eJ8)
+* Teacher: Lydia
+
+## Chicago Footwork
+[Tutorial Compilation](https://www.youtube.com/watch?v=M_9A9yKOeTY)
+* Teacher: Yamato,  Litebulb, Ste-lo, King Charles, Pause Eddie
+
+## Breaking
+[9 Basic Threads](https://www.youtube.com/watch?v=Jr9rVymPj7U)
+* Teacher: Magnus Magneto
