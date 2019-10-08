@@ -6,3 +6,4 @@
 * [When Fashion Gets Gender Wrong](https://gen.medium.com/techwears-gender-problem-604554d6a321) by Ghost Lux
 * [Extensive Data Shows Punishing Reach of Racism for Black Boys](https://www.nytimes.com/interactive/2018/03/19/upshot/race-class-white-and-black-men.html) by Emily Badger, Claire Cain Miller, Adam Pearce and Kevin Quealy. Relatedly, [Income Mobility Charts for Girls, Asian-Americans and Other Groups. Or Make Your Own.](https://www.nytimes.com/interactive/2018/03/27/upshot/make-your-own-mobility-animation.html)
 * [45 Stories of Sex and Consent on Campus](https://www.nytimes.com/interactive/2018/05/10/style/sexual-consent-college-campus.html) by Jessica Bennett and Daniel Jones
+* [Taylor Swift, Philosopher of Forgiveness](https://www.nytimes.com/2019/09/07/opinion/sunday/taylor-swift-lover.html) by Scott Hershovitz
