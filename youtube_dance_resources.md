@@ -36,3 +36,7 @@
 
 [Thread Concepts](https://www.youtube.com/watch?v=SJE8YM4iYGY)
 * Teacher: Nasty Ray
+
+## Krump
+[How to Krump: 3 Basic Moves](https://www.youtube.com/watch?v=3C4wEZ6fEuU)
+* Teacher: BDash
