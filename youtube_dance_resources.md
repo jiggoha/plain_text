@@ -33,3 +33,6 @@
 ## Breaking
 [9 Basic Threads](https://www.youtube.com/watch?v=Jr9rVymPj7U)
 * Teacher: Magnus Magneto
+
+[Thread Concepts](https://www.youtube.com/watch?v=SJE8YM4iYGY)
+* Teacher: Nasty Ray
