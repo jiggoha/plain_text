@@ -40,3 +40,13 @@
 ## Krump
 [How to Krump: 3 Basic Moves](https://www.youtube.com/watch?v=3C4wEZ6fEuU)
 * Teacher: BDash
+
+## Litefeet
+[LiteFeet Specials](https://www.youtube.com/watch?v=2L8UH2zMx6E)
+* Teacher: Blazer Fresh
+
+[50 Classic Litefeet Moves](https://www.youtube.com/watch?v=-IdY7BQTCWs)
+* Teacher: E Solo
+
+[Next School Dictionary: Litefeet](https://www.youtube.com/watch?v=mmX7KT7D9Nw)
+* Teacher: Litefeet Nation
