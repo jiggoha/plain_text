@@ -2,6 +2,7 @@
 
 ## Hip Hop
 [Reject Step](https://www.youtube.com/watch?v=fMEBZ59AQLk)
+* 4:50 for repetition
 
 ## House 
 [Pivot Step Progression](https://www.youtube.com/watch?v=AdELXIatPDA)
