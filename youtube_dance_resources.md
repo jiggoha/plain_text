@@ -19,8 +19,8 @@
 
 [Cross Walk Variations](https://www.youtube.com/watch?v=S_ygdFJ4L54)
 * Teacher: Mamson
-* Variation 1: 0:39. Count: 1  2  3  4 + 5  6  7  8 +.
-* Variation 2: 
+* Variation 1: 0:39. Count: 1   2   3   4 + 5   6   7   8 +.
+* Variation 2: 1:19. Count: 1   2 + 3   4 + 5   6 + 7   8 +.   
 
 ## Popping
 [Boogaloo Walkout](https://www.youtube.com/watch?v=_oiBafzsEFk)
