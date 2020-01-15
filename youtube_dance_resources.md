@@ -13,6 +13,15 @@
 [Loose Legs to Crossroads](https://www.youtube.com/watch?v=qhjIoA0kq4g)
 * Teacher: Jardy Santiago
 
+[Cross Walk](https://www.youtube.com/watch?v=TQVuoS39yY8)
+* Teacher: Mamson
+* 4:13 for music
+
+[Cross Walk Variations](https://www.youtube.com/watch?v=S_ygdFJ4L54)
+* Teacher: Mamson
+* Variation 1: 0:39. Count: 1  2  3  4 + 5  6  7  8 +.
+* Variation 2: 
+
 ## Popping
 [Boogaloo Walkout](https://www.youtube.com/watch?v=_oiBafzsEFk)
 * Teacher: Nelson
