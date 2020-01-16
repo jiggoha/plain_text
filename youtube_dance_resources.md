@@ -44,6 +44,9 @@
 [9 Basic Threads](https://www.youtube.com/watch?v=Jr9rVymPj7U)
 * Teacher: Magnus Magneto
 
+[Indian Step](https://www.youtube.com/watch?v=cKfQ9AQe11E&feature=youtu.be&t=75)
+* Not a tutorial, but I really like how big the dancers execute this move in this video.
+
 [Thread Concepts](https://www.youtube.com/watch?v=SJE8YM4iYGY)
 * Teacher: Nasty Ray
 
